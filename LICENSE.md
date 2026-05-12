@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Craft for macOS extension with elite Extension for Craft for macOS - reminders and export to PDF. Featuring reminders and export to PDF, it's the best choice for
 
 
 
